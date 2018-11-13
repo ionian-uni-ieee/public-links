@@ -7,4 +7,4 @@ https://www.facebook.com/ieeeIonianUni/
 https://docs.google.com/forms/d/1LZA0O-YmgUbV3ABjVThwuMqfabe4XgmESVRclUhGIgQ
 
 ## Discord Channel Invitation
-https://discord.gg/XWG9Mh
+https://discord.gg/nGyhwxk
