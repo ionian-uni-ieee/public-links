@@ -1,4 +1,6 @@
 # LINKS
+## Sign Up for our Mailing List
+https://goo.gl/forms/NMXgMwEe1ZICco2a2  
 
 ## Σελίδα Facebook
 https://www.facebook.com/ieeeIonianUni/
