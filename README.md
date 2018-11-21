@@ -1,6 +1,6 @@
 # LINKS
-## Sign Up for our Mailing List
-https://goo.gl/forms/NMXgMwEe1ZICco2a2  
+## Join our google group to get announcements in your email
+https://groups.google.com/forum/#!members/sb-ionian-ieee
 
 ## Σελίδα Facebook
 https://www.facebook.com/ieeeIonianUni/
